@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @VanshikaSharma2913
-- 👀 I’m interested in ...
 - 🌱 I’m currently working on Google Clud Masters Program
 - 😄 Pronouns: She/Her
 
